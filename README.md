@@ -24,7 +24,7 @@
 | 旗舰套餐 | 300G | 28元 | 77元 | 146元 |  278元 |
 
 
-**免费注册试用: https://EvMivW.to0a2ff.xyz/Pg4Sc3PI**<br/>
+**免费注册试用: https://cZPWqr.to0a2ff.xyz/Pg4Sc3PI**<br/>
 **免费注册试用: https://EvMivW.to0a2ff.xyz/Pg4Sc3PI**<br/>
 **免费注册试用: https://EvMivW.to0a2ff.xyz/Pg4Sc3PI**<br/>
 
